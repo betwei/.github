@@ -9,3 +9,4 @@
 - Nilton (Discord: @nilt0n#8368)
 - Armando rivera.armando0829@gmail.com
 - Adan [twitter](https://twitter.com/AdanUriPlata)
+- Julian njmdistrisoft@gmail.com [github](https://github.com/fkmurphy)
